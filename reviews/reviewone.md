@@ -1,9 +1,9 @@
-# Game Review for (GAME TITLE)
+# Game Review for (The Legend of Zelda: Breath of the Wild)
 
 ## Details
 
 ### Game Title
-The name of the game, subtitle, and the url or information on how to find the game.
+The Legend of Zelda: Breath of the Wild
 
 ### Rating
 Insert your rating system.
