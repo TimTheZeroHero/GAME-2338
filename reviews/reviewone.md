@@ -10,6 +10,7 @@ The Legend of Zelda: Breath of the Wild
 
 ## Summary
   This game is about a hero named Link, in this timeline he has lost all memory about who he is and what he was doing locked inside of a room asleep for about 100 years. When our young hero wakes up from his long slumber he is greated with a tablet that will act as a guidence and as a stoage for memoreys that he will make and help get back memorys that he has lost.
+  
   In this game you adventure though out the world and fight many monsters along the way. as you play you will slowly regain memorys from vistiing places from your past and learn what has happened when you slept for 100 years. As you vist the main towns of each region you will see different people willing to help you on your journy along the way and that are vastly diffent envioryments being on land, water, sky or lava.
   
   When you play the game you learn that every weapon has a rather low durability and will break with ease. So in return you will find out which weapon you like to use wether it be a hammer or a sword you will start hording massive amounts of weapons at a time. so in the regaurd you should not fear losing a weapon because you might find it again within your journy trying many weapons like the bow, short sword, great sword, hammer, club and even wands.
