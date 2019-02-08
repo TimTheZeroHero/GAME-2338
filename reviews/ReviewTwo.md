@@ -6,7 +6,7 @@
 Risk of Rain
 
 ### Rating
-I rate this game a 9 out of 10.
+I rate this game a 9 out of 10 pizza slices.
 
 ## Summary
 Risk of Rain is an action platformer with roguelike elements. With permanent death as a primary feature, players will have to play their best to get as far as possible. Fight on a mysterious planet with randomly spawning enemies and bosses, either alone or with 3 friends in online co-op.
