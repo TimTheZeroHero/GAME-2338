@@ -18,5 +18,5 @@ For this game you need to just like up the blocks so they will fill up the scree
 ## Final Thoughts
 For this game being one of the first puzzle games out there it has done an astonishing job. With random RNG with what shapes will come next, but you will always be looking for that line block to complete a section. So for being the first puzzle game it really hasn't done anything bad for being how simplistic it is.
 
-###Additional info
+### Additional info
 https://en.wikipedia.org/wiki/Tetris
