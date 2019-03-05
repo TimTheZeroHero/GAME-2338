@@ -1,4 +1,4 @@
-# Playtest for [Game Title]
+# Playtest for [Risk of Rain]
 
 * Game Publisher
 * Game Rating
