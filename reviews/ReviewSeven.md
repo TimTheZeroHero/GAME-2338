@@ -16,7 +16,7 @@ Guitar Hero is one of the greatist games within resent times just for the replay
 This game does have different difficulty's with easy, medium and hard with each one having more notes you can play and the faster you will need to hit thoughs notes. As well you can play with friends whiles y'all try to beat each other's highscore for different songs even while you both can play on different difficulty's even though the higher difficulty will get more points but will prove much more of a challange.
 
 ## Final Thoughts
-This game is fun to be played by your self or with friends whiles y'all try to beat each other's highscore for different songs even while you both can play on different difficulty's even though the higher difficulty will get more points. overall this game is an amazing game and will be remembered as an arcade game.
+This game is fun to be played by your self or with friends whiles y'all try to beat each other's highscore for different songs even while you both can play on different difficulty's even though the higher difficulty will get more points, but whilst the older games dont have all the songs some people would like to have but the older games have had the option to add songs. overall this game is an amazing game and will be remembered as an arcade game.
 
 ## Additional Information
 * https://www.guitarhero.com/
