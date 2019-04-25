@@ -13,12 +13,10 @@ This game is about playing songs that came out round the 70's and 80's on a cont
 
 Guitar Hero is one of the greatist games within resent times just for the replayablity it has within the community the game has fertured a way to creat your own songs as well. The DLC for the game was some characters that you can play as which they have no advantages over the others. The other DLC were songs that weren't in the game when the game first released.
 
-
-
-this should be at least 3-4 paragraphs summarising the gameplay mechanics of the game. You should be answering the who, what, when, where, why, and how of the game itself.
+This game does have different difficulty's with easy, medium and hard with each one having more notes you can play and the faster you will need to hit thoughs notes. As well you can play with friends whiles y'all try to beat each other's highscore for different songs even while you both can play on different difficulty's even though the higher difficulty will get more points but will prove much more of a challange.
 
 ## Final Thoughts
-This game is fun to be played by your self or with friends whiles y'all try to beat each other's highscore 
+This game is fun to be played by your self or with friends whiles y'all try to beat each other's highscore for different songs even while you both can play on different difficulty's even though the higher difficulty will get more points. overall this game is an amazing game and will be remembered as an arcade game.
 
 ## Additional Information
 * https://www.guitarhero.com/
